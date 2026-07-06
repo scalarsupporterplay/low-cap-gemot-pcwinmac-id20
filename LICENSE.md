@@ -1,4 +1,4 @@
-# 
+# Premium low cap gem sniper bot complementos para Mac OS | Personalizado low cap gem sniper bot complementos para PC Windows. Con gestión de cartera y paneles personalizados — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
